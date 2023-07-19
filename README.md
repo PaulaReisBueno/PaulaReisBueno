@@ -7,6 +7,6 @@ Eu sou a Paula Alexandra Reis Bueno
 - 👯 Tenho graduação em Licenciatura em Música e Licenciatura em Filosofia. 
 - 🤔 Aperfeiçoamoento em Mídias Integradas na Educação e Especialização em Educação Musical. 
 - 💬 Mestrado e Doutorado em Educação.
-- 📫 Trabalhar com Pensamento Educacional é uma novidade desafiadora, na qual tenho superado limites diariamente...
+- 📫 Trabalhar com Pensamento Educacional tem sido uma novidade desafiadora, na qual tenho superado limites diariamente...
 - 😄 Vamos estudar?
 - ⚡ Bora lá !
